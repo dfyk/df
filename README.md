@@ -1,5 +1,5 @@
 ## 东方影院 最新地址发布 
-## 导 航 永 久 域 名 https://www.df2122.com
+## 导 航 永 久 域 名 https://www.dftv8.com
 ## ⭐️ 👉 访问地址 ：https://www.df2102.com
 ## ⭐️ 👉 备用导航 ：https://www.df2103.com 
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
