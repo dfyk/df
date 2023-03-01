@@ -8,4 +8,3 @@
 ### ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️ 
 ### 谨记永久发布页哦，二师兄都记住了呢！Https://www.df8388.com
 ### 这里有你想找的.51导航最新地址:https://51dh.tv
-### 迅雷高速下载.看片无需等待.顺丰vpn最新地址：https://usu115.com/?channelCode=dongfang-app-release
